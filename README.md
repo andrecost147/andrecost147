@@ -11,5 +11,4 @@ meu nome é andré
 andrecost147
 
 
-
 ![](https://tenor.com/pt-BR/view/kanoh-agito-kengan-ashura-kengan-smile-gif-24797263)
