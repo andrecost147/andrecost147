@@ -8,7 +8,8 @@ meu nome é andré
 
 ### Você pode entrar em contato comigo 📫
 
-andrecost147
+alurastartestudante@email.com
 
+@alurastartestudante
 
 ![](https://media.tenor.com/EIceIYmKS58AAAAM/kanoh-agito.gif)
