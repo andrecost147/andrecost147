@@ -11,4 +11,4 @@ meu nome é andré
 andrecost147
 
 
-![](https://tenor.com/pt-BR/view/kuroki-gensai-kengan-ashura-kengan-omega-rolon-donaire-gif-5695644466263462947)
+![](https://media.tenor.com/EIceIYmKS58AAAAM/kanoh-agito.gif)
